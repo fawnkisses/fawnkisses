@@ -1,3 +1,4 @@
+⠀ ⠀  ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀  ⠀![](https://komarev.com/ghpvc/?username=heavnely-stars&style=for-the-badge)
 ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀⠀ ⠀ “ 𝑻𝒉𝒆⠀ 𝒎𝒐𝒎𝒆𝒏𝒕⠀ 𝒚𝒐𝒖⠀ 𝒂𝒄𝒄𝒆𝒑𝒕⠀ 𝒚𝒐𝒖𝒓𝒔𝒆𝒍𝒇,⠀ 𝒚𝒐𝒖⠀ 𝒃𝒆𝒄𝒐𝒎𝒆⠀ 𝒃𝒆𝒂𝒖𝒕𝒊𝒇𝒖𝒍. ” — 𝑶𝒔𝒉𝒐
 
 
