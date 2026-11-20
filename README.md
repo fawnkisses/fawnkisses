@@ -1,4 +1,4 @@
-⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀⠀ ⠀ “𝑻𝒉𝒆⠀ 𝒎𝒐𝒎𝒆𝒏𝒕⠀ 𝒚𝒐𝒖⠀ 𝒂𝒄𝒄𝒆𝒑𝒕⠀ 𝒚𝒐𝒖𝒓𝒔𝒆𝒍𝒇,⠀ 𝒚𝒐𝒖⠀ 𝒃𝒆𝒄𝒐𝒎𝒆⠀ 𝒃𝒆𝒂𝒖𝒕𝒊𝒇𝒖𝒍.” — 𝑶𝒔𝒉𝒐
+⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀⠀ ⠀ “ 𝑻𝒉𝒆⠀ 𝒎𝒐𝒎𝒆𝒏𝒕⠀ 𝒚𝒐𝒖⠀ 𝒂𝒄𝒄𝒆𝒑𝒕⠀ 𝒚𝒐𝒖𝒓𝒔𝒆𝒍𝒇,⠀ 𝒚𝒐𝒖⠀ 𝒃𝒆𝒄𝒐𝒎𝒆⠀ 𝒃𝒆𝒂𝒖𝒕𝒊𝒇𝒖𝒍. ” — 𝑶𝒔𝒉𝒐
 
 
   ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀   ![image](https://github.com/fawnkisses/fawnkisses/blob/8b85eaabf8ece1b76af54b84f7397410e3106d8f/22cad0125386fa31b2f4dd55af214a5f.gif) 
@@ -10,4 +10,12 @@
 
 
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ![image](https://github.com/fawnkisses/fawnkisses/blob/8b85eaabf8ece1b76af54b84f7397410e3106d8f/dc81a49fa46dea5cbeeadad47c257c2c.gif)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ![image](https://github.com/fawnkisses/fawnkisses/blob/6335df19038b1e46b5e840244308c9b108ff36f9/f3fca06c39614c9990fac04dbd797e59%20(1).gif)
+
+
+ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀“ 𝑹𝒂𝒄𝒉𝒆𝒍⠀ 𝑨𝒎𝒃𝒆𝒓 . . 𝒔𝒉𝒆⠀ 𝒍𝒐𝒐𝒌𝒔⠀ 𝒔𝒐⠀ 𝒉𝒐𝒑𝒆𝒇𝒖𝒍⠀ 𝒂𝒏𝒅⠀ 𝒑𝒓𝒆𝒕𝒕𝒚. ”
+
+
+
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ![image](https://github.com/fawnkisses/fawnkisses/blob/6335df19038b1e46b5e840244308c9b108ff36f9/0e5ae0f8be629dbb5c831ad03db610f7.gif)
+ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀ ⠀⠀ ⠀ ⠀ 
